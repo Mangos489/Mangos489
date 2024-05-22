@@ -1,6 +1,4 @@
-You can reach me on insta 
-Lessmangos
-or discord
+You can reach me on discord
 Mangos489
 
 <!---
