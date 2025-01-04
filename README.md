@@ -1,5 +1,9 @@
 You can reach me on discord
-Xochi_Azure
+Mangos489
+
+Leetcode:
+Twitter:
+
 
 <!---
 Ecruz22004/Ecruz22004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
