@@ -1,6 +1,6 @@
-You can reach me on discord
-Mangos489
+You can reach me on 
 
+Discord:xochi_azure
 Leetcode:
 Twitter:
 
